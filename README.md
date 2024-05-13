@@ -1,1 +1,0 @@
-# QA-KB211-oleg-zeleznij
